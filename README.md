@@ -1,3 +1,4 @@
-Copy the links below and paste into search bar
-https://1.southwestvoodoo.com/
-https://nausea.netlify.app/
+Facts about this page and links.
+These links are only available for about 30-45 min when i post them.
+i will sometimes be posting the time the link it was posted at to not make ppl waste there time.
+these links will also be posted at the start of each period.
